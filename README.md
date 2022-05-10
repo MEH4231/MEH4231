@@ -5,10 +5,8 @@ Founder of Egg In A Bottle Demonstration
 
  Working on my game called No One Else
 
-Itch.io:
-
-https://egginabottle.itch.io
-
+Itch.io:  
+https://egginabottle.itch.io  
 https://meh4231.itch.io
 
 
@@ -18,7 +16,64 @@ Who asked?
 
 Second:
 I wasted your time
-
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
+\
 Third:
 who said you could still read this
 
