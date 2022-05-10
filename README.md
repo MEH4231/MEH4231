@@ -1,7 +1,8 @@
 # Who made this. Sure wasn't me 
 I wish i knew
 
-Founder of Egg In A Bottle Demonstration
+Founder of Egg In A Bottle Demonstration  
+Founder with https://github.com/getpos
 
 Working on my game called No One Else
 
@@ -16,11 +17,10 @@ Contact me on discord MEH !#0931
 First thing:
 Who asked?
 
-Second:
-I wasted your time
+People who thought they would get information down here were wrong
 
 Third:
-Who is down there
+Who is down there?
 \
 \
 \
@@ -79,3 +79,6 @@ Down more
 \
 \
 There is nothing even down here
+
+Check out my repositories  
+If they exist
