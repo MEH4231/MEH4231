@@ -4,7 +4,6 @@ I wish i knew
 Founder of Egg In A Bottle Demonstration  
 Founder with https://github.com/getpos
 
-Working on my game called No One Else
 
 Itch.io:  
 https://egginabottle.itch.io  
