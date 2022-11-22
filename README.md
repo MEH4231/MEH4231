@@ -1,24 +1,21 @@
 # Who made this. Sure wasn't me 
 I wish i knew
 
-Founder of Egg In A Bottle Demonstration  
-Founder with https://github.com/getpos
+The
 
-
-Itch.io:  
-https://egginabottle.itch.io  
 https://meh4231.itch.io
 
 Contact me on discord MEH !#0931
 
 
-## Society and why it exists
-First thing:
-Who asked?
+## Free Ice Cream 
+Yummy
 
-People who thought they would get information down here were wrong
+Go down for the Free Ice Cream
 
-Third:
+...
+
+You better believe it:
 Who is down there?
 \
 \
