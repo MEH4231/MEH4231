@@ -15,7 +15,8 @@ Go down for the Free Ice Cream
 
 ...
 
-You better believe it:
+You better believe it
+
 Who is down there?
 \
 \
