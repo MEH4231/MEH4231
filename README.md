@@ -1,6 +1,3 @@
-Portfolio:
-https://meh4231.github.io
-
 Making games since 2021
 
 https://meh4231.itch.io
